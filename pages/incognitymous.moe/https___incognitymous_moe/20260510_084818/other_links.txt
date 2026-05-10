@@ -1,0 +1,14 @@
+https://incognitymous.moe/comments/feed/
+https://incognitymous.moe/feed/
+https://incognitymous.moe/legal-disclaimer/
+https://incognitymous.moe/tnc_agree
+https://incognitymous.moe/tnc_disagree
+https://incognitymous.moe/wp-content/themes/adorability/js/adorablock.js?ver=6.9.4
+https://incognitymous.moe/wp-content/themes/adorability/style.css
+https://incognitymous.moe/wp-includes/js/jquery/jquery-migrate.min.js?ver=3.4.1
+https://incognitymous.moe/wp-includes/js/jquery/jquery.min.js?ver=3.7.1
+https://incognitymous.moe/wp-json/
+https://incognitymous.moe/wp-json/oembed/1.0/embed?url=https%3A%2F%2Fincognitymous.moe%2Flegal-disclaimer%2F
+https://incognitymous.moe/wp-json/oembed/1.0/embed?url=https%3A%2F%2Fincognitymous.moe%2Flegal-disclaimer%2F&#038;format=xml
+https://incognitymous.moe/wp-json/wp/v2/pages/7
+https://incognitymous.moe/xmlrpc.php?rsd
