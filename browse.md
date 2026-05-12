@@ -114,3 +114,4 @@
 - [https___hdporncomics_com_crossed_circuits_sex_comic_ (20260512_195920)](pages/hdporncomics.com/https___hdporncomics_com_crossed_circuits_sex_comic_/20260512_195920/index.md) — 50 media files
 - [https___hdporncomics_com_eavesdropping_sex_comic_ (20260512_200729)](pages/hdporncomics.com/https___hdporncomics_com_eavesdropping_sex_comic_/20260512_200729/index.md) — 33 media files
 - [https___hdporncomics_com (20260512_201955)](pages/hdporncomics.com/https___hdporncomics_com/20260512_201955/index.md) — 14 media files
+- [https___hdporncomics_com_werehog_training_sex_comic_ (20260512_202736)](pages/hdporncomics.com/https___hdporncomics_com_werehog_training_sex_comic_/20260512_202736/index.md) — 37 media files
