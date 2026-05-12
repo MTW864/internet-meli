@@ -97,3 +97,4 @@
 - [https___hdporncomics_com_the_loud_house_nightmares_sex_comic_ (20260512_130313)](pages/hdporncomics.com/https___hdporncomics_com_the_loud_house_nightmares_sex_comic_/20260512_130313/index.md) — 62 media files
 - [https___hdporncomics_com__s_Fight_20club_20_s_extra_5B_5D_title_s_extra_5B_5D_taxonomy (20260512_130609)](pages/hdporncomics.com/https___hdporncomics_com__s_Fight_20club_20_s_extra_5B_5D_title_s_extra_5B_5D_taxonomy/20260512_130609/index.md) — 10 media files
 - [https___hdporncomics_com_the_amazing_digital_fight_club_ari_cueva_sex_comic_ (20260512_131140)](pages/hdporncomics.com/https___hdporncomics_com_the_amazing_digital_fight_club_ari_cueva_sex_comic_/20260512_131140/index.md) — 58 media files
+- [https___hdporncomics_com_scrawled_monsters_tentacles_futanari_sex_comic_ (20260512_141536)](pages/hdporncomics.com/https___hdporncomics_com_scrawled_monsters_tentacles_futanari_sex_comic_/20260512_141536/index.md) — 346 media files
